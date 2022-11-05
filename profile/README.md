@@ -1,4 +1,4 @@
-## :bulb: TIM 9 
+## :bulb: TIM 9 :bulb:
 
 - Stefan Krstić E2 35/2022
 - Magdalena Reljin E2 107/2022
